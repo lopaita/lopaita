@@ -1,0 +1,3 @@
+- 😴 Oi meu nome é @lopaita
+- 👩‍🎓 Tenho muito interesse em aprender...
+- 
